@@ -50,4 +50,4 @@
 ## 📫 Let's Connect!  
 
 - [LinkedIn](https://www.linkedin.com/)  
-- 📧 ovivasramirez@byupathway.edu  
+- 📧 oralvivas122@gmail.com  
